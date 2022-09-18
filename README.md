@@ -1,5 +1,7 @@
 # **university-bitterness**
 
+![](https://count.getloli.com/get/@universitybitterness)
+
 ## 索引
 
 [大学新苦](#中学里面没有但是大学有的东西) \| [大学其他苦](#其他大学苦要点) \| [无体育不大学](#邮电大学四大运动)
