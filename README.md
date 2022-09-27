@@ -13,7 +13,8 @@
 
 志愿者（每学年20个志愿时长）（“勤工助学”很有利于加志愿时长）
 
-综测 [综测扣分项目](https://bluebearofficial.github.io/comprehensive-measurement/）
+综测 
+[综测扣分项目](https://bluebearofficial.github.io/comprehensive-measurement/）
 
 青年大学习weekly（每周一上午11点多钟）（截图！）
 
