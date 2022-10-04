@@ -18,7 +18,7 @@
 综测 
 （[综测扣分项目](https://bluebearofficial.github.io/comprehensive-measurement/)）
 
-青年大学习weekly（每周一上午11点多钟）（截图！）和宪法学习annually
+青年大学习weekly（每周一上午11点多钟）（截图！）和宪法小卫士annually
 
 体育打卡? 
 
