@@ -63,7 +63,7 @@ fx continuous （实际“出校时间”要大于选择“出校时间”才能
 
 ## 其他大学苦要点
 
-早读/早操（紧张的作息时间）（2022年10月10日起，7点到教室早读英语和语文……（实际2022年10月17日起早读，因为covid网课），但是[据说cet4过了就不用了](https://bluebearofficial.github.io/cet-countdown/)）
+早读/早操（紧张的作息时间）（2022年10月10日起，7点到**2116教室1-3排**早读英语和语文……（实际2022年10月17日起早读，因为covid网课），但是[据说cet4过了就不用了](https://bluebearofficial.github.io/cet-countdown/)）
 
 自习课（ex，一周6课时，刘超的幺蛾子）
 
