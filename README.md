@@ -1,6 +1,6 @@
 # **university-bitterness**
 
-**我们要想开点，大学虽苦，但没有「嘉鸿的」高中苦！**
+<font size="6">**我们要想开点，大学虽苦，但没有「嘉鸿的」高中苦！**</font>
 
 ![](https://count.getloli.com/get/@universitybitterness)
 
