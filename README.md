@@ -1,5 +1,7 @@
 # **university-bitterness**
 
+**我们要想开点，大学虽苦，但没有「嘉鸿的」高中苦！**
+
 ![](https://count.getloli.com/get/@universitybitterness)
 
 ## 索引
